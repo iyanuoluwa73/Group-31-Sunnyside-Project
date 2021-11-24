@@ -1,1 +1,1 @@
-# Group-31-Sunnyside-Project
+Sunnyside landing page
