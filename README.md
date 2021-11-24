@@ -1,1 +1,1 @@
-Sunnyside landing page
+Group 31 Sunnyside landing page
